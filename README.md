@@ -4,7 +4,7 @@
 - 🦢 I’m looking to collaborate on games, both fangames and originals!!
 - 🩰 How to reach me ...
 - 🩷 Pronouns: she/her
-- 🐰 Fun fact: I can't whistle and I'm good at playing songs by ear
+- 🐰 Fun fact: I can't whistle
 
 <!---
 dulcehime/dulcehime is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
