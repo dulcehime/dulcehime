@@ -1,4 +1,1 @@
-                            ╱|、
-                          (˚ˎ 。7  
-                           |、˜〵          
-                           じしˍ,)ノ
+<sub><sup>graphic credits: </sup></sub>
